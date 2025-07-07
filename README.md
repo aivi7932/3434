@@ -40,4 +40,4 @@ Q3：是否支持下载？
 
 、R18、DLsite 等获取合法内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/aivi7932/3434 ）</span>
